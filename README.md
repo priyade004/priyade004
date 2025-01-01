@@ -1,4 +1,4 @@
-![choong-deng-xiang--WXQm_NTK0U-unsplash](https://github.com/user-attachments/assets/37afbab9-4808-4d81-a14c-bea03367fe6d)
+![11667717_20945567](https://github.com/user-attachments/assets/bf33bde9-4978-4c3f-a2ce-38c752e11e41)
 
 
 - 👋 Hi, I’m @priyade004
