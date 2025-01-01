@@ -1,3 +1,6 @@
+![choong-deng-xiang--WXQm_NTK0U-unsplash](https://github.com/user-attachments/assets/37afbab9-4808-4d81-a14c-bea03367fe6d)
+
+
 - 👋 Hi, I’m @priyade004
 - 👀 I’m interested in Data Science, Machine Learning, AI, Web Development, and Cloud Computing.
 - 🌱 I’m currently learning advanced machine learning algorithms, deep learning, and building full-stack applications.
